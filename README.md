@@ -103,7 +103,7 @@ Jupyter Notebook, Git, GitHub
 ## 📫 Contact  
 
 - LinkedIn: https://www.linkedin.com/in/ibrahim---s/  
-- Email: your.email@example.com  
+- Email: ibrahims86x@gmail.com 
 
 ---
 
